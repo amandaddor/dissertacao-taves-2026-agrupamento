@@ -1,0 +1,1 @@
+# dissertacao-taves-2026-agrupamento
